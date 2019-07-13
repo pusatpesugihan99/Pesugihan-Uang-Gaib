@@ -1,1 +1,0 @@
-# Pesugihan-Uang-Gaib
